@@ -34,7 +34,7 @@ Aka: doob, doob tube (he loves his cat tower tube), doobie, fine boi, brad pitt 
 He's a sweet boi and loves everybody. Pick him up, give him belly rubs...he loves attention.
 
 ## FeLV
-This a Feline leukemia virus. Both boys have survived many years with it but we don't want to spread it. Don't take these cats anywere. Don't bring other cats. Wash hands after handling just to be safe.
+This a Feline leukemia virus colony. Both boys have survived many years with it but we don't want to spread it. Don't take these cats anywere. Don't bring other cats. Wash hands after handling just to be safe.
 
 ## Food
 There is dish on right of sink that has scrubber and spoon. Use these for all cat duties.
