@@ -7,7 +7,7 @@ Hours: Monday-Friday 9am-6pm, Saturday 10am-5pm, Sunday closed.
 
 During open hours, the front door is unlocked and the elevators are accessible. During closed hours, the codebox will be needed.
 
-Codebox: press 0 and then enter the code provided (#####). It will give message that the doors are open. Go in and quickly press the eleveator button (I think it unlocks for 30 seconds). 7th floor #713
+Codebox: press 0 and then enter the code provided (#####). It will give message that the doors are open. Go in and quickly press the elevator button (I think it unlocks for 30 seconds). 7th floor #713
 
 Door code: To open press and wait for the pad to activate: enter the provided code (####). Make sure you slam to the door closed with some force to lock, and press the lock icon on the bottom right of the pad
 
@@ -15,9 +15,9 @@ Door code: To open press and wait for the pad to activate: enter the provided co
 
 <img src="https://user-images.githubusercontent.com/69823015/128452800-fc7fd4f3-ebf3-4498-af42-232958c83b1c.jpg" width="400px" />
 
-Aka: pudge, poo, blackie el poo, smudge, mr b, mr benitez, black bear.
+Aka: pudge, poo, blackie el poo, bad cat, smudge, mr b, mr benitez, black bear.
 
-He's 17, deaf, and still a bit mistrustful of humans. He is still a pretty gentle, sweet old man, tho. He's particular about being touched. **Don't touch ears!**
+He's 17, deaf, and still a bit mistrustful of humans. He's gentle, sweet old man, tho. He's particular about being touched. **Don't touch ears!**
 
 * First, let him sniff you and rub his pudgy cheeks on your hand.
 * All rubs must be gentle.
@@ -29,7 +29,7 @@ He's 17, deaf, and still a bit mistrustful of humans. He is still a pretty gentl
 
 <img src="https://user-images.githubusercontent.com/69823015/128453250-ef7ab978-32d1-4db6-a544-a02523002b17.JPG" width="400px" />
 
-Aka: doob, doob tube (he loves his cat tower tube), doobie, fine boi, brad pitt cat.
+Aka: doob, doob tube (he loves his cat tower tube), doobie, fine boi, brad pitt, david duchovny cat.
 
 He's a sweet boi and loves everybody. Pick him up, give him belly rubs...he loves attention.
 
