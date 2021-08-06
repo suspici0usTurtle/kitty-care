@@ -1,7 +1,7 @@
 # kitty-care
 Instructions for serving the Lords
 
-## The Morton 245 S 200 E Unit 713
+## The Morton
 
 Hours: Monday-Friday 9am-6pm, Saturday 10am-5pm, Sunday closed.
 
@@ -25,7 +25,7 @@ He's 17, deaf, and still a bit mistrustful of humans. He's gentle, sweet old man
 * He can bite and scratch, but he is pretty harmless.
 * Pick up at your own risk.
 
-## Dobias
+## Doobias
 
 <img src="https://user-images.githubusercontent.com/69823015/128453250-ef7ab978-32d1-4db6-a544-a02523002b17.JPG" width="400px" />
 
@@ -34,7 +34,7 @@ Aka: doob, doob tube (he loves his cat tower tube), doobie, fine boi, brad pitt,
 He's a sweet boi and loves everybody. Pick him up, give him belly rubs...he loves attention.
 
 ## FeLV
-This a Feline leukemia virus colony. Both boys have survived many years with it but we don't want to spread it. Don't take these cats anywere. Don't bring other cats. Wash hands after handling just to be safe.
+This a Feline leukemia virus colony. Both boys have survived many years with it but we don't want to spread it. Don't take these cats anywere, and don't let them escape outside. Don't bring other cats. Wash hands after handling just to be safe.
 
 ## Food
 There is dish on right of sink that has scrubber and spoon. Use these for all cat duties.
@@ -49,7 +49,7 @@ Wet food:
 
 Both should come for food, but if Doobie doesn't, pick him up and place him at the food. Blackie lives for wet food, he should eat on his own. If he doesn't please contact me immediately.
 
-Blackie is on the left, Doobie on the right.
+Blackie eats on the left, and Doobie on the right.
 
 <img src="https://user-images.githubusercontent.com/69823015/128452059-464e97b4-e957-4247-9242-d6cd9c621d4f.jpeg" width="400px" />
 
