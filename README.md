@@ -17,7 +17,7 @@ Door code: To open press and wait for the pad to activate: enter the provided co
 
 Aka: pudge, poo, blackie el poo, smudge, mr b, mr benitez, black bear.
 
-He's 17, deaf and, is still a bit mistrustful of humans. He is still a pretty gentle, sweet old man, tho. He's particular about being touched. **Don't touch ears!**
+He's 17, deaf, and still a bit mistrustful of humans. He is still a pretty gentle, sweet old man, tho. He's particular about being touched. **Don't touch ears!**
 
 * First, let him sniff you and rub his pudgy cheeks on your hand.
 * All rubs must be gentle.
